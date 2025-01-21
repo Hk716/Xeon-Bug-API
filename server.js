@@ -4,7 +4,7 @@
 //Instagram: unicorn_xeon13
 //Telegram: @DGXeon
 //GitHub: @DGXeon
-//WhatsApp: +916909137213
+//WhatsApp: +447902713726
 //want more free bot scripts? subscribe to my youtube channel: https://youtube.com/@DGXeon
 //telegram channel: https://t.me/+WEsVdEN2B9w4ZjA9
 
